@@ -67,5 +67,3 @@ Contact:
 Email: [mdsadique752@gmail.com]
 Mob. No : 7277856540
 
-Contact: 
-email: (email)[mdsadique752@gmail.com]
