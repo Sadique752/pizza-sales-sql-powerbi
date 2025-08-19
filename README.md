@@ -63,6 +63,9 @@ _The dashboard contains:_
 
 <img width="1347" height="734" alt="image" src="https://github.com/user-attachments/assets/e68c2ea7-e1b9-4e2e-8dca-34b12461e7aa" />
 
+Contact:
+Email: [mdsadique752@gmail.com]
+Mob. No : 7277856540
 
-
-  
+Contact: 
+email: (email)[mdsadique752@gmail.com]
